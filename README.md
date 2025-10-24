@@ -37,6 +37,7 @@ Contribute to open-source communities
 🌐 Connect With Me
 
 🔗 LinkedIn https://www.linkedin.com/in/maharishi-a-17889736b?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+
 💡 SkillRack Profile https://www.skillrack.com/profile/538284/8af4d4d2becebdf2c213e57bbf4583e8e2dbc300
 
 🏅 Motto
